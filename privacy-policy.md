@@ -1,6 +1,6 @@
 # MemoryLane Privacy Policy
 
-**Last updated: December 3, 2025**
+**Last updated: December 17, 2025**
 
 ## Introduction
 
